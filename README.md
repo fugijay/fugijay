@@ -1,4 +1,4 @@
-<img width="1000" height="563" alt="image" src="https://github.com/user-attachments/assets/9608543b-e9d5-4d4f-80a7-986574b39b07" />
+<img width="950" height="460" alt="image" src="https://github.com/user-attachments/assets/9608543b-e9d5-4d4f-80a7-986574b39b07" />
 
 jay walker fictive
 
