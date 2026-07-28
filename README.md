@@ -1,3 +1,7 @@
-<img width="735" height="414" alt="image" src="https://github.com/user-attachments/assets/efa947de-119a-4a7a-b1bc-b7c1b7b44eb3" />
+<img width="1000" height="563" alt="image" src="https://github.com/user-attachments/assets/9608543b-e9d5-4d4f-80a7-986574b39b07" />
 
-test
+jay walker fictive
+
+fugidove yumeshipper
+
+(bodily) 18 years old ^u^
