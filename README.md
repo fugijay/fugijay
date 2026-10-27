@@ -17,3 +17,7 @@ fugidove yumeshipper
 <p align="center">
 i 💙 my morro/kai! ninjago fictives/fictkins/irls pls interact
 </p>
+
+
+this is a test ignore
+<img src="https://github.com/fugijay/fugijay/blob/276991c8e79e32066a20dc7e72ebcbb23a655685/Folder%20name/what%20the%20hell.png">
