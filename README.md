@@ -1,5 +1,5 @@
 <p align="center">
-<img width="950" height="513" alt="image" src="https://github.com/user-attachments/assets/a7a42477-2485-4758-b9b6-52e9d27aaed1" />
+<img width="950" height="513" alt="Fugidove Caressing Jay Tenderly..." src="[https://github.com/user-attachments/assets/a7a42477-2485-4758-b9b6-52e9d27aaed1](https://github.com/fugijay/fugijay/blob/934c9f4d4eca9522dc221ecbe6d409fb78fef987/folder/My%20Image.png)" />
 </p>
 
 <p align="center">
